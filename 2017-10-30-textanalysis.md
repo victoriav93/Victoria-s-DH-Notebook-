@@ -30,6 +30,7 @@ Voyant Tools
 - Not about finding an answer, but vision of your work.
 - https://dfr.jstor.org
 - Underline words that are about health and society -- percentage of the words in the text-- stimulates the process completed by a Voyant Tools.
+- Sprott Journal -- late November.
 - 
  
 
