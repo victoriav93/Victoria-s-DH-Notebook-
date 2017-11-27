@@ -61,6 +61,13 @@
 - Standards provide suggestions/guidance, but it is up to the developer. 
 - A11Y challenges for mobile devices and those visabilities. 
 - Need to be Perceivable, Operable, Undersandable, or Robust.
+
+## Addressing issue of A11Y:
+
+- Social construction -- as others.
+- Content vs container.
+- Diff-abled-- do things in different ways.
+- Including appropraitness. 
 - 
 
 
