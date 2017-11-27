@@ -59,7 +59,9 @@
 ## A11Y and Compliance Online
 
 - Standards provide suggestions/guidance, but it is up to the developer. 
--  A11Y challenges for mobile devices and those wisabilities
+- A11Y challenges for mobile devices and those visabilities. 
+- Need to be Perceivable, Operable, Undersandable, or Robust.
+- 
 
 
 
