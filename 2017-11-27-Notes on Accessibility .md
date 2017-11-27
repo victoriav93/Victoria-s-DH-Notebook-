@@ -67,9 +67,14 @@
 - Social construction -- as others.
 - Content vs container.
 - Diff-abled-- do things in different ways.
-- Including appropraitness. 
-- 
+- Including appropriateness. 
+- George Williams--who has the disability here? 
+- Design = purpose +planning + intention
+- Design biased to able.
 
 
 
-
+## Conclusion: 
+- Impact on digital= indirect
+- human experience that cannot be compartmentalized.
+-   
