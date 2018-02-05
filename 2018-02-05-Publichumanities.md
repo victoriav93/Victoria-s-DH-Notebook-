@@ -24,6 +24,10 @@ Idea of scarcity, and postscarcity society, but copyright issue still exists.
 Credibility in traditional as easier to establish. 
 Digital-- info access and overloa and global.
 Goal may change from profit to  disseminate knowledge.  Authority can be challenged. 
+Digital-- increased ability for critique. 
+Challenges--expectations, opposition can threaten carrer (risk , outrage machine).
+   Opportunitis: exposure for new, challenge idea
+   Values should be-- informed engagement, disagree without being disagreeable, generous intent. 
 
 
 
