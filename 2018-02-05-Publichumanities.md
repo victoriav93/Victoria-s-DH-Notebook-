@@ -29,5 +29,8 @@ Challenges--expectations, opposition can threaten carrer (risk , outrage machine
    Opportunitis: exposure for new, challenge idea
    Values should be-- informed engagement, disagree without being disagreeable, generous intent. 
 
+How to combat/discourage personal attacks and trolls on online discussions.
+   
+
 
 
