@@ -22,7 +22,8 @@ Open the Humanities to the public
 Engage public in conversations/programs on humanities &relevance to current life.
 Idea of scarcity, and postscarcity society, but copyright issue still exists. 
 Credibility in traditional as easier to establish. 
-Digital-- info access and overload. 
+Digital-- info access and overloa and global.
+Goal may change from profit to  disseminate knowledge.  Authority can be challenged. 
 
 
 
