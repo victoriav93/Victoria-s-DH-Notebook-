@@ -12,6 +12,17 @@ Vs. Public Humanities:
 - Engage in discourse, collaboration, Critique lens.
 - Patience
 - Connection with non-expert users.
-- Different bases of knowledge
+- Different bases of knowledge.
+
+
+Key components of Exisiting Defintiions:
+
+Public humanities is the work of federal,state,nonprofit, and community-based cultural organizations;
+Open the Humanities to the public
+Engage public in conversations/programs on humanities &relevance to current life.
+Idea of scarcity, and postscarcity society, but copyright issue still exists. 
+Credibility in traditional as easier to establish. 
+Digital-- info access and overload. 
+
 
 
