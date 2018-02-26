@@ -13,3 +13,5 @@ Computational Creativity:
 -How do you program sponaneity. 
 - Gender/age biases. 
 ===> Tracery, twine, cheapbots done quick
+
+JimminyPjones 
