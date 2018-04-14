@@ -33,4 +33,8 @@ How to combat/discourage personal attacks and trolls on online discussions.
    
 
 
+“The 2008 light show at the Ara Pacis museum, which sought to use color mapping to restore the polychromy to the Ara Pacis of Augustus. The image is via La Repubblica “ - Wonderful!!
+
+“throughout the nineteenth century, scientists would scour far and wide mismeasuring human anatomy. The more data that was compiled, the less significant the result became. Where science failed, prejudice stepped in and observation yielded to opinion.”” - This is particularly interesting, as I had mentioned in the previous article, this really highlights how master narratives are controlled (in many ways) by scholars and how individual prejudice and racism can construct the master narrative in troubling ways.
+
 
